@@ -1,2 +1,2 @@
 # CZSK-Subtiers-community
-CZSK Subtiers :D
+Tohle je předělaná kopie stránky pvptiers od b0tfleyz :D
